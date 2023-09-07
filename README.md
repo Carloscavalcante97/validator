@@ -1,2 +1,2 @@
 # validator
-https://incompetent-belief.surge.sh/ 🚀
+https://one-piece-fan.surge.sh/ 🚀
